@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ByteBanditK
 - 👀 I’m interested in deep sea diving and dark sea phishing
-- 📫 Reach me on my socials
+- 📫 Reach me on my socials / WP
 
 
 <!---
